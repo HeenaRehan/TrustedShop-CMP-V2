@@ -1,0 +1,1 @@
+# TrustedShop-CMP-V2
